@@ -1,1 +1,1 @@
-# lets get started 
+# lets get started and make some money 
